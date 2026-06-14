@@ -1,1 +1,1 @@
-# cbat-privacy-policy
+# Privacy Policy
